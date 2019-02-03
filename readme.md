@@ -1,0 +1,1 @@
+# This is all of my task in Mathematical Modeling Course 2018
